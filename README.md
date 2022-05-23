@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi, I'm Jojo.
+
+🇨🇳  China WuHan     🌱  Unknow
+
+[http://tycoding.cn](https://www.choot.top/)
