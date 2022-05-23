@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 
 🇨🇳  China WuHan     🌱  Unknow
 
-[https://www.choot.top/]([https://www.csdn.net](https://www.choot.top/))
+[https://www.choot.top/](https://www.choot.top/)
